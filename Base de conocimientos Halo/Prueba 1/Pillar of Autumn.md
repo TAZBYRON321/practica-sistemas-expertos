@@ -1,0 +1,1 @@
+El **UNSC Pillar of Autumn** (C-709) es la nave espacial más emblemática y legendaria de la humanidad en el universo de Halo. Bajo el mando del respetado **Capitán Jacob Keyes**, este crucero ligero clase _Halcyon_ no solo sobrevivió a la catastrófica Caída de Reach.

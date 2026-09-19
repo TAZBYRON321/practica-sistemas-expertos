@@ -1,0 +1,1 @@
+**SPARTAN-B312 / "Noble Seis" (Noble Six):**  Un asesino solitario calificado por el [[UNSC]]como "hiperletal" (un rango compartido únicamente con el [[Jefe Maestro]]). Decidió quedarse atrás en el planeta agonizante para asegurar el escape del [[Pillar of Autumn]], cayendo en batalla tras ser superado numéricamente por oleadas de Elites.

@@ -1,0 +1,1 @@
+**Emile-A239 (Noble Four):** El especialista en asalto y combate cercano. Reconocido visualmente por el cráneo tallado en el visor de su casco y su actitud agresiva en batalla. Murió defendiendo un cañón de aceleración magnética al ser atravesado por la espada de energía de un Elite, aunque logró llevarse a su asesino con él.

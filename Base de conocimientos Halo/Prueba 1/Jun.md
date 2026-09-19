@@ -1,0 +1,1 @@
+**Jun-A266 (Noble Three):** El francotirador y rastreador de la unidad. Caracterizado por ser reflexivo y calculador. **Jun es el único superviviente** confirmado de [[El equipo Noble]] durante la caída de [[Reach]], ya que recibió la orden de escoltar a la Dra. Halsey fuera del planeta; más tarde ayudó a reclutar y entrenar a la primera generación de [[Spartan-IV]].

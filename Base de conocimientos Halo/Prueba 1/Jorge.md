@@ -1,0 +1,1 @@
+**Jorge-052 (Noble Five):** El especialista en armas pesadas y **único [[Spartan-II]] de [[El equipo Noble]]**. Al ser más veterano y haber nacido en [[Reach]], sentía una conexión profunda con el planeta y su gente. Se sacrificó en el espacio destruyendo manualmente una supernave del [[Covenant]] al activar una bomba improvisada.

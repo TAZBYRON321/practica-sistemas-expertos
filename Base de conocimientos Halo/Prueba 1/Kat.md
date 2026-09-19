@@ -1,0 +1,1 @@
+**Catherine-B320 / "Kat" (Noble Two):** La segunda al mando y cerebro táctico del grupo. Una experta en informática e inteligencia militar. Llevaba un brazo robótico tras ser herida en una operación previa. Fue asesinada de manera sorpresiva por un disparo de rifle de aguijones en la cabeza perpetrado por un Elite Zealot.

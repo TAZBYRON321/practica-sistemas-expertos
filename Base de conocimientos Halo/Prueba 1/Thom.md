@@ -1,0 +1,1 @@
+**Thom-A293:** El Noble Seis anterior a los eventos del juego. Murió pocos meses antes de la caída de Reach al detonar una carga nuclear dentro de un crucero Covenant. Su vacante fue la que ocupó [[SPARTAN-B312]].

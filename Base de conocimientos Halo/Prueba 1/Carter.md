@@ -1,0 +1,1 @@
+**Carter-A259 (Noble One):** El líder indiscutible de [[El equipo Noble]]. Un [[Spartan-III]] sumamente disciplinado y enfocado en cumplir la misión mientras intentaba mantener a salvo a su pelotón. Murió estrellando deliberadamente un Pelican contra un Scarab del Covenant para despejarle el camino a sus compañeros. 
